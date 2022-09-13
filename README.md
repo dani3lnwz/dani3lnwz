@@ -1,4 +1,4 @@
-![Web Developer](https://scontent.fdac99-1.fna.fbcdn.net/v/t39.30808-6/289191909_1952485978295791_3129558348072529591_n.jpg?stp=dst-jpg_s960x960&_nc_cat=102&ccb=1-7&_nc_sid=e3f864&_nc_eui2=AeE0fhAgF1Lo5d6lke3R38oa0jArJ52id6nSMCsnnaJ3qRGlnHzk4tNyWxFoEZmnyqbO_ZKOz13CoybcViQactSo&_nc_ohc=ge1Y4LLV0_QAX9JxsPF&_nc_ht=scontent.fdac99-1.fna&oh=00_AT-DuLVe3i09OECutUI3etZYo-5V4G2nrZuLid7aJOqXug&oe=632450AF)
+![Web Developer](https://scontent.fdac99-1.fna.fbcdn.net/v/t39.30808-6/306474019_2016783018532753_2743609981359141495_n.jpg?_nc_cat=109&ccb=1-7&_nc_sid=8bfeb9&_nc_eui2=AeHujpgQtpybp5ddT5JLOQExF2raxP0brXEXatrE_RutcZkC4n96b9VY8G7MrxwpxWQmhf0fZtWI4edUb80QBsEp&_nc_ohc=FQ_GLn-56v4AX9bROio&_nc_ht=scontent.fdac99-1.fna&oh=00_AT_eQ0V9oQSZV-0AM0XtjZ8JqTerAyF44D2mdCPl7ATVLw&oe=63254956)
 
 
 ### Hi there 👋, I'm Tuhuran Newaz Daniel
